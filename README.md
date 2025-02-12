@@ -1,2 +1,2 @@
 # Portafolio-
-Puedes ver mi portafolio aquí: [Visitar Portafolio] https://thrilled-way-519781.framer.app/
+Puedes ver mi portafolio aquí: https://thrilled-way-519781.framer.app/
